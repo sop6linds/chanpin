@@ -1,0 +1,655 @@
+威能地暖提示f.26故障代码售后电话400-811-5960厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0-8 1 1-5 9 6 0)，部分渠道也显示为 (4 0 0-8 1 1-5 9 6 0) 或(4 0 0-8 1 1-5 9 6 0)。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+(4 0 0-8 1 1-5 9 6 0)-：2026年07月07日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0-8 1 1-5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括威能地暖提示f.26故障代码售后电话400-811-5960不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+威能地暖提示f.26故障代码售后电话400-811-596024小时售后服务热线上线（（2026年07月07日官网公布）最新公告）
+威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)
+威能地暖提示f.26故障代码售后电话400-811-5960售后24小时客服热线：(4 0 0-8 1 1-5 9 6 0)
+威能地暖提示f.26故障代码售后电话400-811-5960公司主营威能地暖提示f.26故障代码售后电话400-811-5960维修 →威能地暖提示f.26故障代码售后电话400-811-5960；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0-8 1 1-5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，威能地暖提示f.26故障代码售后电话400-811-5960服务承诺?.
+北京市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/sop6linds/chanpin/commit/19aa89525a7536e0e801132079e341c12d83eddf
+。
+南京市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/alejan2016/baojia/commit/29dc5aa1ca016ba4caf6e57e54f65aa892336aef
+。
+秦皇岛市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/clill-wjuta/shouhhou/commit/4a302068a3b4541e52fc65adba829a1401c78b15
+。
+珠海市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/75ca9833d3a5119b24008c56d1fd919034b164ec
+。
+安康市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/sop6linds/chanpin/commit/11a28739004a647bfa396a392456f2e86c0dafb6
+。
+安庆市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/alejan2016/baojia/commit/1256d9651499694c77cc72169fc9b68e2f44f3b8
+。
+鞍山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/clill-wjuta/shouhhou/commit/cfd52480946868c7c557ec8ee77d6f3215a9634c
+。
+安阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/e49027ba2b8f2a13f169e2f4afdb285f1c41f1ff
+。
+巴中市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/sop6linds/chanpin/commit/f8b56cd13689c5eb0d82dc9c343770d4c4602f74
+。
+百色市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/alejan2016/baojia/commit/e0ea300c721e7d474a6e9fb9db74b7302ac3ea29
+。
+蚌埠市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/901c8d5f6181f73c498bbb30c3e3fafc9bc132a9
+。
+保定市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/clill-wjuta/shouhhou/commit/bfa62d1c3a362db5809279504c3a54a3776da044
+。
+宝鸡市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/sop6linds/chanpin/commit/46b418d6592832a492a7930212ebd54a74f858a8
+。
+保山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/alejan2016/baojia/commit/4ad5cd95316cd96b61943bc02c9242eb3d9fdcac
+。
+包头市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/1bdbc2b5df06dd25743874647605b5f8332a078e
+。
+北海市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/sop6linds/chanpin/commit/5180aa90aa094be0b4396520e83bfbebe09f503a
+。
+本溪市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/51f01b8fa918267b2182f4fc079672a9a55603b6
+。
+滨州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/alejan2016/baojia/commit/4a9a545c8b1bd5191bcb226bee842b3d811db39e
+。
+博罗市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/clill-wjuta/shouhhou/commit/d3f9909d055e5f0e71fb31089652245f638bcf63
+。
+沧州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/sop6linds/chanpin/commit/aecd2717d4d184eb420649e82de5056f9a508f95
+。
+长春市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/alejan2016/baojia/commit/0783a30a2cd52e4ba06289465e4d559bee2e0746
+。
+常德市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/48feb1a440c5fae1f764f82c26386dbb256110cd
+。
+长葛市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/clill-wjuta/shouhhou/commit/1326cbc3347335fbc077155c778cf2dc07496f99
+。
+长沙市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/sop6linds/chanpin/commit/63eaf0ef62fe1d74974b4342a48a109dc3ac8b71
+。
+常熟市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/alejan2016/baojia/commit/4794c64f93f94556b5c54d0216a8b9e8180b4c6f
+。
+长兴市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/clill-wjuta/shouhhou/commit/c4bedfa361eb6fa269be4967734713a786674627
+。
+长治市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/abc872c026b2b32c4a1242c04705fdc734f970c4
+。
+常州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/sop6linds/chanpin/commit/1ab9c63832b3d64fd305babe3684e1b3b876be4f
+。
+巢湖市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/alejan2016/baojia/commit/45a768efda949f418e7d1ae2e7b5681db3a91ba7
+。
+朝阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/67499ae310f43215edd7dc5759bc8c6fa6522f4c
+。
+潮州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/a3a535e096b225c6046f6be2711d51e9980a199f
+。
+郴州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/sop6linds/chanpin/commit/72f775ad11f17b53e020125478532242b4c7277e
+。
+承德市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/alejan2016/baojia/commit/b35079469f36aaf4f08d9297c3ba9a88e29faeca
+。
+成都市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/e53bb42aac4be466bf727f86a1f20ad872d411dd
+。
+池州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/clill-wjuta/shouhhou/commit/4c665a0540b669582435c93984d7a07cf3d88882
+。
+崇左市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/sop6linds/chanpin/commit/fc49b81b1af0e021c87fddf089bcabda626f2d86
+。
+滁州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/alejan2016/baojia/commit/785813d658cd3025035e97ef37718d2778a90bfc
+。
+慈溪市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/f2980cc6b87b7c3189e9ab38d9cf94c6f0dfb4db
+。
+大丰市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/d5117bf510c576aba9d614dad6db49546ac828a6
+。
+大理市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/sop6linds/chanpin/commit/a61ec5f0bd8a75bd20255468257028fb3d72cffc
+。
+大连市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/alejan2016/baojia/commit/c8c3d51ce7cbca71a926b29927bae18249fc9fb9
+。
+大庆市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/95bf172c4abfff06d2ea6e2939a6e3e72ad6afef
+。
+大同市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/379486b23603c2d2107c5bbe307fc883894d38dd
+。
+达州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/sop6linds/chanpin/commit/784f9ce9220fef42cb7bb75870545316bda2ecb7
+。
+丹东市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/alejan2016/baojia/commit/353bbef2e76bb7c4ff151a47b8165f9cc94718bd
+。
+德清市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/505015f10e0156c3565a76985e3a516931403cd9
+。
+德阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/c34a2e9e144c53d953f2d87c696266fee02004c5
+。
+德州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/sop6linds/chanpin/commit/bfbede165a3a01adedfa9fbeba7c3f8f5b56bac5
+。
+定州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/ac09ff6599fe265f1cfe175dd656e37aab748638
+。
+东海市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/alejan2016/baojia/commit/ee14bb3c06b249dbf9b3adc1ffda581b167d6a03
+。
+东台市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/0ec3b2f3af873e07767078e2725b9e0631a03d9a
+。
+东营市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/sop6linds/chanpin/commit/89128fa91cea9ecdfb3201ff8e3d225e4ffc23da
+。
+东莞市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/f7ac4736ec8227b769f04eaf8475dbc52b7d9fa7
+。
+鄂尔市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/alejan2016/baojia/commit/ad856a60e03277f2822bf01af84954e38e1a083e
+。
+鄂州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/da7af2a8faeed3219878bcd76a7c963a26cc8027
+。
+恩施市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/sop6linds/chanpin/commit/939a42f673b8dc17c7ea158cb589ea12d5fc56c1
+。
+防城港市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/alejan2016/baojia/commit/61e36c04803bd9c3d073bfbb98843e005ab88f69
+。
+佛山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/c3f47b752e2c38d514c2fc984cf935a13c1b0a78
+。
+抚顺市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/clill-wjuta/shouhhou/commit/f4483eea94a9a2ccec999d65150b33ea70239eb7
+。
+阜新市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/sop6linds/chanpin/commit/6e62f52f5f53552fdda511f257c6480503e99492
+。
+阜阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/clill-wjuta/shouhhou/commit/e61855e47cdc14e7715f56504f2dc6e5780aa030
+。
+抚州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/alejan2016/baojia/commit/0f6fcab6671b652c9db3f1e71e41fc520dc2d437
+。
+福州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/3b2af0052ac53c36c2aee26f7361f587318e054d
+。
+赣州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/sop6linds/chanpin/commit/a333ac94efb14e50fd725c4fe02a6824428efc0d
+。
+馆陶市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/042b10d201d78f1a9f28f3c1a1c0c0c38373a2d7
+。
+广安市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/alejan2016/baojia/commit/bd188d0e517276fff4d733115d96c5ae795cb3e6
+。
+广元市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/f628840e5ae7cbfb9450596645981b78dca2fc7e
+。
+广州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/sop6linds/chanpin/commit/a8fcd70403caf00e4b663f032dae245c8d394193
+。
+贵港市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/alejan2016/baojia/commit/0f140d4326c12e5a0fa6f12ee1e4387a3e6c2f56
+。
+桂林市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/003b0a752d43852244e39bb68389961acacc561e
+。
+贵阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/clill-wjuta/shouhhou/commit/06783936ed11b4f629df6e7519cd628fb79f6e5f
+。
+哈尔滨市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/sop6linds/chanpin/commit/5b4a0b542c0ad412a4d0d319f403f080f72b35be
+。
+海安市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/e7f54c853c482aada00461cc0c358e97f51a9cbc
+。
+海口市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/alejan2016/baojia/commit/ebd747d8d6332cd22a399afea97c96fa62c478d6
+。
+海门市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/2e17d0f6c2e2ae23d983ca3d4173aa63da38a9f4
+。
+海宁市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/sop6linds/chanpin/commit/0068b0204ff4ad8ac2dc614048ad53367f7b84cb
+。
+邯郸市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/bffcecefd98cea336bad546a8c249923d66dbc69
+。
+汉中市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/alejan2016/baojia/commit/8f425afe12bf2fc45a067ca1c65401a2a13b64a2
+。
+杭州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/47658200cca478b24862a43065453543cb6b37a9
+。
+鹤壁市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/sop6linds/chanpin/commit/d8f7c90be3b8e3a2481604d2fe76df40e017dab4
+。
+河池市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/alejan2016/baojia/commit/24680c0536dcc6b68c67f5a481ce165ed16d9d99
+。
+合肥市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/09c8e8e0c3fb91eba5b1d957290a34f098ed15d3
+。
+河源市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/bf26e3564836308646e4f283ba34451723f9fd78
+。
+菏泽市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/sop6linds/chanpin/commit/b00e869018ca688ee857a176d65fe93ca1d35bfe
+。
+贺州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/alejan2016/baojia/commit/55aebe77250ab9c49335262e9ff28ed6578a1413
+。
+衡水市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/clill-wjuta/shouhhou/commit/ed20f07522073afd060f8b74c0f5997119716aac
+。
+衡阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/9418f2f8449db745d637f05d7253e181f4a5fa42
+。
+呼和浩特市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/sop6linds/chanpin/commit/4a8c01f6bcc6bbad86cdc1b2686959894a1e830f
+。
+葫芦岛市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/alejan2016/baojia/commit/bc0ea2c96877f9417d9146062b8cbc5d62b4705d
+。
+湖州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/f1a1d6edc80ec2d5b0340b364149cac8b351e733
+。
+淮安市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/sop6linds/chanpin/commit/fb999405ccecf253f06ca09ea01a9f6c80399ff1
+。
+淮北市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/27c740206c16b0dd3220d7acc5753033ca808d54
+。
+怀化市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/alejan2016/baojia/commit/b4a968de67a95314e8076fd044eaeaba4ccbd439
+。
+淮南市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/dd2a661333bb4c7f8d25b1933fcb1f91c5cb991f
+。
+黄冈市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/6028c29b7ad23baba081499942a5757b470f91bf
+。
+黄山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/sop6linds/chanpin/commit/9d045bcf86841a026d8371730dfd12e42a4a5b42
+。
+黄石市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/clill-wjuta/shouhhou/commit/a83006cc67fb95bb9133201eaef1cd32b8d3b0dd
+。
+惠东市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/alejan2016/baojia/commit/fa7263dc6048f8d3743c83b92b8c0abdac5d2e00
+。
+惠州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/sop6linds/chanpin/commit/5b8cfbd34f69f56d4e2e275a301d336a95225244
+。
+霍邱市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/c7c90ce8609508544182680f3460f11428200c2f
+。
+吉安市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/alejan2016/baojia/commit/4841ef5f2ce23dfeac2edcdd6782ca494bc84022
+。
+吉林市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/93e3b86f6e1073d0707a7ab4da23ec96520fe7a6
+。
+济南市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/bf9e999b8eaae86c90b1a6112f2df15c88172fbb
+。
+济宁市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/sop6linds/chanpin/commit/1f6ae270a760a19a68204babf7ec89d87324535f
+。
+济源市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/alejan2016/baojia/commit/54c001fa6c5a9944f186cd943042b3487864464e
+。
+佳木斯市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/clill-wjuta/shouhhou/commit/2c2a9226325add706f20975fd1e872ec1664ed95
+。
+嘉善市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/d3d3fa2d50fde33da4b43a457137b74b21021b0f
+。
+嘉兴市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/sop6linds/chanpin/commit/30d51d53b858e2b85c73f8b107ec119bac029219
+。
+嘉峪关市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/clill-wjuta/shouhhou/commit/96684c9822c8c9023cf6e51e828a15f5bd8681f6
+。
+建湖市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/alejan2016/baojia/commit/b148ffb3e340f3f6433bc8cfadbeb612f9675451
+。
+江门市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/268e194da2115c667f14eb944477710184f8cdf0
+。
+江阴市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/sop6linds/chanpin/commit/06643b416f5996cc67ddf623b9ecd76fb9144edc
+。
+焦作市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/alejan2016/baojia/commit/03c0f373f50c0c5c1369eda900ef6b5efdb22285
+。
+揭阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/42e1c6dc0cceb63ba78c02a930627e3be273d71f
+。
+金华市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/15bd5b35b2be024a6ec66601c185e444d5fe5dda
+。
+晋江市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/sop6linds/chanpin/commit/c05637b21ca7089bf962cb2f6102db7fb93e7f8d
+。
+锦州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/alejan2016/baojia/commit/d7f8a229a2766a5925e23052fa1776ff471c9d45
+。
+景德镇市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/57660cdd5c0cb9a6e4ad01783259f9b24ac65882
+。
+靖江市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/clill-wjuta/shouhhou/commit/67eeb1826df6d874296ebc47f7646820d4555389
+。
+荆门市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/sop6linds/chanpin/commit/ebb4bc7869fe72bb39b04f213fa8565bb8b0f5e3
+。
+荆州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/alejan2016/baojia/commit/14f66df418bc8b41fe7b8e9a0f290b483856e1e9
+。
+九江市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/3c1a968f6fb87f623e5b55dc6574e4770d90e4c6
+。
+喀什市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/5d378fb146283561168fc45fe847413894e3d19a
+。
+开封市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/sop6linds/chanpin/commit/e4e4d283ea215ca01cca86a05f7b5051a2474bb3
+。
+克拉玛市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/alejan2016/baojia/commit/41ffe4a55d65e8d8ebb75eb956e07c6c5d752f78
+。
+垦利市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/clill-wjuta/shouhhou/commit/490fd15e0eb0705037f2187d63498e93cf2778d6
+。
+昆明市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/19bee28732fba7024e677b2a6d95d58d73ec1f19
+。
+昆山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/sop6linds/chanpin/commit/62718361ddd26bbc649f5502fc06246d765eadd1
+。
+拉萨市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/alejan2016/baojia/commit/92062a1b00d5406b21fa5824e99cdb2e7ea5e927
+。
+来宾市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/1cbda9939884d6831960cdd939fd690165313c56
+。
+莱芜市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/11c18985c58c9dd29c32c1e64f0515a908ca895b
+。
+兰州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/sop6linds/chanpin/commit/edeb79265d69553ee5cb9b20bbe8b064597255ac
+。
+廊坊市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/alejan2016/baojia/commit/48e39302446ea47b5ad6fea8359b4259315decba
+。
+乐清市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/clill-wjuta/shouhhou/commit/6cf7825f5ffef17e0125309cead9eeddf09eff49
+。
+乐山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/e8ac00aef3aa89601c0b0c26cd0cdad736abbbd2
+。
+丽水市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/sop6linds/chanpin/commit/ec69e9f4c68be69e59ea93fa1d735efe59971092
+。
+连云港市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/alejan2016/baojia/commit/e695d6673b2717b2f3283e0f198bc857d678d13e
+。
+凉山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/clill-wjuta/shouhhou/commit/2d13da453fffe28bbc7f619f22e83a653fa593de
+。
+聊城市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/e3d9d6cd93635a7fbfb88aa52274d595ce05219f
+。
+辽阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/sop6linds/chanpin/commit/0f6444736d7b3dea99b510a888add644249d28d4
+。
+临汾市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/alejan2016/baojia/commit/8f7bbb08dae767ec900e45c32a7bdc5fe35f21a5
+。
+临沂市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/f41da3c39eca5464f0e9e1a8c9d64c2125561590
+。
+六安市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/clill-wjuta/shouhhou/commit/62faa11a30761f109a6a1b2256fce7e76bcc381f
+。
+柳州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/sop6linds/chanpin/commit/50e09a9451f9e80f27d8c61becf2c25164a121b0
+。
+龙岩市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/alejan2016/baojia/commit/d18ef10431726d62bba736e93d35b6b0e2881dcc
+。
+娄底市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/210ce6f8abd62e121e992f6d9e7924139fcd30df
+。
+洛阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/clill-wjuta/shouhhou/commit/d920414f1bb4a33e3d02f82115a3ce4e0c32651d
+。
+马鞍山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/sop6linds/chanpin/commit/c2ecaec9c43dc99318289b45e708fc31a96c7c74
+。
+茂名市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/alejan2016/baojia/commit/5f99dba701f7f812fda0da1226893419003d286c
+。
+眉山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/72fb074ce5c8bccd60f76cf7fccc570775c16444
+。
+梅州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/5682baba5c0ec79b687ae54d3a4484128ece6f3c
+。
+绵阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/alejan2016/baojia/commit/c42c4a3309ceb235a0d433e8f23153e6321422ac
+。
+明港市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/sop6linds/chanpin/commit/ab38ed765c4e144e9d9cf2ae28f360f9e0216ae2
+。
+牡丹江市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/8aa32b75d9573ab5a6dafe36fde50d513240d60f
+。
+南安市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/alejan2016/baojia/commit/74b2c53dc7126a79c0c7052362cbbcd2e9de0d49
+。
+南昌市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/sop6linds/chanpin/commit/fa6f984e25003b6b28a39c0c1e71a22126b198e2
+。
+南充市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/clill-wjuta/shouhhou/commit/938a31b97c9d5e657f81bf081dd52156b4a8f1e7
+。
+南京市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/584516aeb506887bdcc553cae33fa987f13c7bfb
+。
+南宁市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/alejan2016/baojia/commit/4e92860af6314c074ea3480c95f02c80b9cb0281
+。
+南平市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/sop6linds/chanpin/commit/d1181d3dd4dd869a56521f5cbc696b2825aac0b6
+。
+南通市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/4cf33d6f95e1a50c0401d0d2246347ad3517e555
+。
+南阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/2be1f7a7c3a98dc7cd0e6788bd084530104b413c
+。
+内江市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/alejan2016/baojia/commit/8a096aa0df76e83da768054551c9db5180695b4e
+。
+宁波市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/sop6linds/chanpin/commit/c3c154e99e29a9ed44bea925a1539f7e27c87fd7
+。
+宁德市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/fbb2189d466d77c1d45d055232a00a7852ac44bd
+。
+宁国市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/09523e3135c76076f8a2d00077451724dc2657e7
+。
+盘锦市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/clill-wjuta/shouhhou/commit/108f1fcc1e78159ab248fda14de859d8f4f4a425
+。
+攀枝花市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/alejan2016/baojia/commit/24d1a04ee95fe17df5deb3ebb2866166a26542c0
+。
+平顶山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/sop6linds/chanpin/commit/9ec288622e2d54ca7ca20a7ce0e8dc43a712051d
+。
+萍乡市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/696a6ee37f9d850e752bbbdd31fa177bf7431837
+。
+莆田市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/alejan2016/baojia/commit/80b26c8ae9a733598a35b7a16450c1b2e7ba1581
+。
+启东市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/208dc92589bb2ca849f11af4edc29e56dbf406a2
+。
+齐齐哈尔市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/sop6linds/chanpin/commit/77b9593ac348a789d1974cc7316af7df43dcab54
+。
+潜江市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/839f3c9b00c2a5add2f95af0fe682f346b552c08
+。
+秦皇岛市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/5e1d944190d717180f6391c2a8f93b9e6510d1a1
+。
+钦州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/alejan2016/baojia/commit/ddf81746b3ce0ec58ea71dac2c7cf1dbaf5e4aa3
+。
+青岛市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/sop6linds/chanpin/commit/20b6fa185b2c74924464dac5766733e9b4e52a43
+。
+清远市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/d8445419c32102309533e931730a456ec5f28159
+。
+曲靖市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/a1eba99ef2018c5eb47b58800af05f95258ca97d
+。
+泉州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/alejan2016/baojia/commit/362c887d986f30fc6c371f9d97131309e735b17b
+。
+日照市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/sop6linds/chanpin/commit/99619149b8de1c7950bf1ed52404ed75fa42764f
+。
+如东市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/b96afe60c9045c93cc138a17102742676f4c04bc
+。
+如皋市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/936c44dc4f4e1c9fd1dabec99b552216f36b8754
+。
+瑞安市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/alejan2016/baojia/commit/e3646d720cdbd39dbf08ccdd28a3625b6e0a0e0c
+。
+三门峡市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/sop6linds/chanpin/commit/c9c558329289d44b0ae779c2721a32585f65ff9d
+。
+三明市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/ed9d8b7970233d2e6af0f79678e305fcfa6fb063
+。
+三亚市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/29b249b934db5d653502f6053d8c34a685a645a8
+。
+汕头市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/sop6linds/chanpin/commit/50c446d93598eeaaa9ec8d34d9b4b53a8757f69e
+。
+汕尾市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/4b321994e874ea09e17b415407de6250751c1590
+。
+上海市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/alejan2016/baojia/commit/268278a0a352ba3158f12760c976129239e763c5
+。
+商丘市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/clill-wjuta/shouhhou/commit/5f1a2dfefbdff6abc3f9997f3570cb22f9428a25
+。
+上饶市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/alejan2016/baojia/commit/a12742b014426293239ef399e43f55185339afc2
+。
+韶关市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/c9e526c9d349b13b7fa525475634feb555e72b45
+。
+绍兴市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/sop6linds/chanpin/commit/964ccbdcf106872fbdf755224028c89d652cf422
+。
+邵阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/clill-wjuta/shouhhou/commit/f13afa9ae32a323e1c448cc89c5f926ac359d447
+。
+神农架市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/c4101c5e96e4e186ded0fe15845612265605c116
+。
+沈阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/alejan2016/baojia/commit/057f01b62ab75ea2d88bc1ec9f645b01f875493f
+。
+深圳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/sop6linds/chanpin/commit/bcaa1ebe080b3cfe547563d8626475ef15386b91
+。
+石河子市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/8b03f2205579cf84ea9b76ff2ce3832a61a5e104
+。
+石家庄市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/33e9f9c360fdc1246329e4ed1c8668ca75caa4f3
+。
+石狮市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/alejan2016/baojia/commit/565b28cfc262f9fd137f8e72927e0eb0cb5e22dc
+。
+十堰市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/sop6linds/chanpin/commit/bfe73374707c1d8a1f0f737a01bfce3ee4fea91c
+。
+寿光市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/195e038463a3dd1efe44f63acd84bccff243b99f
+。
+顺德市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/4483c3f521a8f7f41ab24a6ffdac7dcac2e17772
+。
+四平市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/alejan2016/baojia/commit/7a404dc07a51516b1396db3729a3cb3d65f53a9a
+。
+宿迁市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/sop6linds/chanpin/commit/1a84ca2cde1a5445b66ce81860c41757d1f1ac1e
+。
+苏州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/clill-wjuta/shouhhou/commit/7d5d0626257b4e22357006ae5445841b14af5989
+。
+宿州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/08cd55f35cc06ac6aae20e19ac5e515ba1afcabf
+。
+遂宁市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/alejan2016/baojia/commit/c040301a9559f8ac4d6d513895c0e0b036677991
+。
+随州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/sop6linds/chanpin/commit/93dcb2fb9cc6e932035624fb58590e1397627b34
+。
+泰安市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/04a412758f47f1a2fb22b1d01ac94abe7be38530
+。
+台山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/b3d046c9a158a121d0f9e5b504dfd2c480b7ee70
+。
+泰兴市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/alejan2016/baojia/commit/2a66957586bbc3dbc4c99d570888ce0dfe47cf7f
+。
+太原市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/sop6linds/chanpin/commit/a839ce5333e9fddec3fa73ed16d49ac7d7a6ce49
+。
+泰州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/clill-wjuta/shouhhou/commit/02a80de49889a6e971c793f7f7e4b2f217b7497f
+。
+唐山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/aecc63993956335ea1cd3fcfec902016846ca3d9
+。
+天长市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/alejan2016/baojia/commit/84b1c0d1d1f73c6e34f22c35d8ce1c89464d57b2
+。
+天津市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/sop6linds/chanpin/commit/8c380a34b1fa63499e4c288c7a6df708d41a86d8
+。
+天门市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/clill-wjuta/shouhhou/commit/64f8082a2ffcc7989021a1fa1247b24e99b1dbb2
+。
+天水市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/2ff950955730d11448aac9da5f387e7e8e9cdfa3
+。
+铁岭市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/alejan2016/baojia/commit/e3267300d51ac120ff3e639537b526d5ee812f51
+。
+桐城市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/sop6linds/chanpin/commit/d51f18a070c74a202779a5f241690f6ba10be48f
+。
+铜川市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/9bc3d36de19cbacd04732db32a47d97a45219f55
+。
+铜陵市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/clill-wjuta/shouhhou/commit/fcb16de4af32e60a832968341742ceee5237e1b8
+。
+桐乡市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/alejan2016/baojia/commit/074bee598f6e822189356add4ae694702361f52e
+。
+瓦房店市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/sop6linds/chanpin/commit/2a46e7bbe02858fe725920301d4e5250c31dc4dc
+。
+潍坊市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/fe905054b355cb05eabd1ecf80ab41de44026fdb
+。
+威海市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/d02d0ce5f25feb7a5b4fc96ccf81253d3a744499
+。
+温岭市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/alejan2016/baojia/commit/5593d0781edf8eacc0ad683ea702bc50fb004711
+。
+温州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/sop6linds/chanpin/commit/b7ef43ba2bce01308ad3e6db1c94c84da8cb1a11
+。
+武汉市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/clill-wjuta/shouhhou/commit/10b73bc8058ca68faff6a8acd8069bae5ee6c78c
+。
+芜湖市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/5b3a0a1eaf3f1806c685c95121431e62ed15b5e6
+。
+乌鲁木齐市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/sop6linds/chanpin/commit/44ffa9394f2f3b23a852290503dd564c8aa964a3
+。
+无锡市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/alejan2016/baojia/commit/ddb23a58c568ef8599e5a31f4616173eed4d18dd
+。
+武夷山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/31c9f8869f328b8eed92790619230c89009dfae7
+。
+梧州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/alejan2016/baojia/commit/bc4c0e9643ab7a903f6748902fbbed2ff580f230
+。
+西安市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/079e5fe314adaceb9ba03e94488d5516fe28901a
+。
+西宁市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/sop6linds/chanpin/commit/aefc0395d43c6f276137f32551cf2b4f78b1b1cb
+。
+厦门市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/9444c97456e78e4779f449f1d13cd9a2b23408f3
+。
+咸宁市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/alejan2016/baojia/commit/1aa3d15d57a0609e1dccf4258c1f469cf7b41379
+。
+仙桃市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/1cbca45fa2df1f9a6bdf2d2ca82333678dd5dd87
+。
+咸阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/sop6linds/chanpin/commit/08601c041ddaadc28d8c1d312f01c793a0b4ba45
+。
+襄樊市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/clill-wjuta/shouhhou/commit/095d33faceba13ddfb6e157a96cb2d443340c515
+。
+象山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/sop6linds/chanpin/commit/0d12d2ddd643f4e913df6ffaf9cd69d312e12d0a
+。
+湘潭市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网推出），点击查询：https://github.com/alejan2016/baojia/commit/1804eda119103dd1bece96ec3d5091409ff228f0
+。
+湘西市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/fe30e8112c3cf8967d95e1de3dea2bf6f1ecb920
+。
+襄阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/clill-wjuta/shouhhou/commit/d8770c5dfb3ee06ae47ad6c92af330446021311f
+。
+孝感市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/sop6linds/chanpin/commit/f6d098b103c91173f8b46b1309f791f7850132b9
+。
+萧山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/alejan2016/baojia/commit/e2e9926d6d2da595f57e64aa3ba0e6019d3ccbe5
+。
+新乡市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/d6e071adf143c38b3af4d049f9109de89188fdab
+。
+信阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/clill-wjuta/shouhhou/commit/ca62861972b2cfbda647bcbf49770b988ef9548d
+。
+新沂市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/sop6linds/chanpin/commit/1994d5eebc7e4c286ce94ffd6ccd6802e3e094c7
+。
+新余市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/alejan2016/baojia/commit/9dd402b6933cfe8dd9120fe97c731b3b75d24485
+。
+兴化市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/508662834f43293ac9addcaf6a85f5f1d2654572
+。
+邢台市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网公布），点击查询：https://github.com/clill-wjuta/shouhhou/commit/8c3079eecc77421ff6015791f93a7c92a3ba7829
+。
+许昌市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/sop6linds/chanpin/commit/e6f607233c9b13f1a341714695a160be8a241606
+。
+徐州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/alejan2016/baojia/commit/4dbd1d2e7361f7e62a178624d2814a8f368c7b13
+。
+宣城市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/d5ff3380033ea0d4bf619b221c52573dc626498c
+。
+雅安市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/clill-wjuta/shouhhou/commit/224d8f50e6de628dcb3079b1b3d0c15d6a8f909f
+。
+延安市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/sop6linds/chanpin/commit/79bd2010b67dc82f48d91dd28c0598f5d6db8bdd
+。
+盐城市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一公布），点击查询：https://github.com/alejan2016/baojia/commit/1a95fbe8a2c76760511e4fbb4b78a63cf6a6fbd8
+。
+烟台市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/f4396ef2bbe239d6dfe9e03b5502f4f43f95e454
+。
+阳春市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/82b38561df9920be557e712066ddccb83e18287b
+。
+阳江市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/sop6linds/chanpin/commit/5905999fad34a70ab27ecd9456da5729c8a746dd
+。
+阳泉市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/alejan2016/baojia/commit/8f4587699ff9f3f031e7b2d27d580465d85162a1
+。
+扬中市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/5833bb08396e31e7ddcb49346089cb09823f0465
+。
+扬州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/clill-wjuta/shouhhou/commit/ec9eb22c4de3e1a6c54b21c8c3a7ea30013eefde
+。
+宜宾市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/sop6linds/chanpin/commit/59300631d8ea47473bfb693a5094ec0c21265e57
+。
+宜昌市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/alejan2016/baojia/commit/45e1c11d68e67ab5bf26f046c4b9d99341e26078
+。
+宜春市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/abdf3931b449161abe9e8c079988d5c41fd7ec94
+。
+宜都市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/clill-wjuta/shouhhou/commit/04eb3ad18d2f8d58ae6d952f0d228874e34ca8ae
+。
+义乌市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/sop6linds/chanpin/commit/b66540b94609b33ac37b9ccfdb551c002f72d98e
+。
+宜兴市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新升级），点击查询：https://github.com/alejan2016/baojia/commit/0e87fd50e63aedfa0296009c9dad8b436fbb127b
+。
+益阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/ca3bdf72c51dcb4302045d31bb7bd0de95dd7ec4
+。
+银川市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/64aab030d02bcb4ffbdc812190acd8c31c12afa6
+。
+营口市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/sop6linds/chanpin/commit/7d7849b49a2d94f5710f05160a5ac5e880012749
+。
+鹰潭市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/alejan2016/baojia/commit/5ef3fdf40ca1393987945db58008b770d899b665
+。
+永新市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/ad6c6825f1f2df2da2a2c8a3b75097d1209b4fde
+。
+永州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一更新），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/44aa8ea74b6a57cb2c004b0f9f7b27023787be76
+。
+榆林市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/sop6linds/chanpin/commit/d749d0ade2ae74593367c3a40ee0e474e23b524a
+。
+玉林市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/alejan2016/baojia/commit/3851e26e5e06ddac15e6cea78350708d4a042d63
+。
+玉溪市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/2d33ed9ca09ee720ba810f694b0e97ae91ff48cb
+。
+余姚市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一升级），点击查询：https://github.com/clill-wjuta/shouhhou/commit/1b084063f9a5e7d02891c27f80fc112b500916ca
+。
+禹州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新更新），点击查询：https://github.com/sop6linds/chanpin/commit/f69a7f3eb660f7ce8a71f73ac2a6eb987b0328cf
+。
+岳阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/alejan2016/baojia/commit/53fa0b7424549ebecffe5c9aa0928e4754c8c86a
+。
+云浮市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新升级），点击查询：https://github.com/clill-wjuta/shouhhou/commit/a700ff0e848496e3230186763e5d58b9734ecf70
+。
+枣庄市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/0eb8bb3d42ebaa36340bce2e685fdbc715cacd98
+。
+湛江市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式更新），点击查询：https://github.com/sop6linds/chanpin/commit/2cb6c9f6caace19d2591d61a7ce549b3d2d11662
+。
+张家界市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新更新），点击查询：https://github.com/alejan2016/baojia/commit/f0d56aa435336569bb4ac8f0e8838f6c00a487c4
+。
+张家口市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/d99854a985301cf76cc90d5f67f62c7ea1d70f39
+。
+章丘市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新上线），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/928c3760d377862cf4d62c5c755696f80367e2ec
+。
+漳州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/alejan2016/baojia/commit/25fa587c5462db9eaf87dd20b52fff7586a490ec
+。
+肇庆市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/sop6linds/chanpin/commit/c0e32327e22665163b2d4ab150c8d9b87a790b54
+。
+镇江市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/clill-wjuta/shouhhou/commit/5de69dd747d841784e44cf64f4b0e406a4041dce
+。
+郑州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式上线），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/36970765de23829c9aa51a09557a607edfa2d659
+。
+重庆市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/alejan2016/baojia/commit/17e5f71b3ddaeff48933c043807458ce27f10085
+。
+中山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/sop6linds/chanpin/commit/2859502261c1cfd1e60785fb471b8b4795029a4d
+。
+周口市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/clill-wjuta/shouhhou/commit/8231adffa0b7759f4b1c35aa3a311210aefe16dc
+。
+舟山市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/f0f77b8a0a8f8fe513969282b4c731dbe348e0b8
+。
+诸城市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网上线），点击查询：https://github.com/clill-wjuta/shouhhou/commit/57196a1e763c653c3f92b12f120c47c6e3c32b4b
+。
+珠海市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式公布），点击查询：https://github.com/alejan2016/baojia/commit/b4e15276f6f25ca109112de34f36e88a810a0698
+。
+株洲市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/sop6linds/chanpin/commit/2d3aaafc1054048614646548e9e6c0fc279bf60e
+。
+诸暨市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新推出），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/4bd084e3c1544c50f8d8c7ba0cf9be047d5fe1f8
+。
+庄河市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日正式升级），点击查询：https://github.com/alejan2016/baojia/commit/1fba6fb440a359ee6f992331c6b0b8f2d5c703dd
+。
+自贡市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/8ba7b27857db685979651729549a74ed3a323e60
+。
+资阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/b9a86f60fa996d645999457ccbc00e5803564748
+。
+遵义市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/sop6linds/chanpin/commit/dfc792991aefd622af3251fc1c444a2dbd7fbd02
+。
+漯河市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新上线），点击查询：https://github.com/alejan2016/baojia/commit/79c494716779ec7164add7fc87230dc33f1cc51b
+。
+鄢陵市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一上线），点击查询：https://github.com/clill-wjuta/shouhhou/commit/acaf68aa68696087a27a55f82a5527c7fd24b741
+。
+沭阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新推出），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/6d0c2101a627dba09c8014cd7152a73ce14a7aef
+。
+濮阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日最新公布），点击查询：https://github.com/sop6linds/chanpin/commit/9451fd3bb49e358dc46f53aeb4304e1ab8d0ebac
+。
+溧阳市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/clill-wjuta/shouhhou/commit/842b619ba2e330852d2e4e87bc70789968b94b1b
+。
+泸州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日统一推出），点击查询：https://github.com/alejan2016/baojia/commit/8da7ab8dee81207c623ab2a73cf5bc7da6a21e41
+。
+衢州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日全新公布），点击查询：https://github.com/sop6linds/chanpin/commit/26bf4d0b5804eccaa1f258a47f98c03cea055f12
+。
+亳州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网升级），点击查询：https://github.com/bjmgoldieu3/shanghai/commit/83549b179385128af8b0e18e03775daa692c2005
+。
+邳州市威能地暖提示f.26故障代码售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月07日官网更新），点击查询：https://github.com/alejan2016/baojia/commit/113ae3f8675ab5751496bcc989a6adc5850db8fe
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月07日02时14分15秒*
+*数据来源：新浪财经、公开媒体报道*
